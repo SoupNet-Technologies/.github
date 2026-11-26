@@ -10,6 +10,3 @@
 
 - **Website:** [soupnet.ca](https://soupnet.ca)
 
-## 🚀 Join the Journey
-
-We’re explorers in the digital space, always on the lookout for fellow adventurers. Intrigued? Reach out and let’s make something extraordinary.
